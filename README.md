@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي قلبي معاك
+> في الليالي أستناك
+> أنت في حياتي ملاك
+> خدني في حضن هواك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
